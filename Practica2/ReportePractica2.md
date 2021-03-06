@@ -1,1 +1,0 @@
-Reporte Práctica 2
